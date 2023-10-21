@@ -1,7 +1,8 @@
 - i answer to Henry, Rico, Axolotl
 - he/him/it
 - trans ftm
-- autistic, Pokemon is my special interest
+- audhd, Pokemon is my special interest
+- other interests include marine life , tornadoes, fnaf, dnd, and balan wonderworld
 - i make my own art, pfp was made by me
-
-
+- i tend to forget people i've friended on ponytown, if i forget you please remind me
+- if you sexualize pokemon stay far away from me, thanks
