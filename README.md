@@ -1,8 +1,11 @@
-- i answer to Henry, Rico, Axolotl
+- my names are Henry, Rico, Axolotl
 - he/him/it
 - trans ftm
-- audhd, Pokemon is my special interest
-- other interests include marine life , tornadoes, fnaf, dnd, and balan wonderworld
+- audhd, Pokemon and marine animals are my special interest
+- other interests are pikmin, tornadoes, fnaf, animal jam
 - i make my own art, pfp was made by me
-- i tend to forget people i've friended on ponytown, if i forget you please remind me
+- I made this github purely for ponytown
+- if ur a hazbin hotel, helluva boss, or tadc skin i will block you idgaf you're all annoying ❤️
+- i tend to forget the people i've friended on ponytown, if i forget who are you are please remind me
 - if you sexualize pokemon stay far away from me, thanks
+- proshippers will also immediately be blocked again idgaf you're all freaks that need jail 🫶
