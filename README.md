@@ -1,6 +1,6 @@
 - my names are Henry, Rico, Axolotl, use whichever you want
 - he/him/it
-- i have severe social anxiety, interactions are allowed but i more than likely will not talk, sorry!!
+- i have crippling social anxiety, interactions are allowed but i more than likely will not talk, sorry!!
 - audhd, Pokemon and marine animals are my special interest
 - other current interests are animal jam, pikmin, mouthwashing and dandy's world
 - I made this github purely for ponytown. if you see a skin of mine and it doesn't have this github linked assume it is stolen.
